@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏻‍💻 Love coding and solving puzzles<br>🌟 Interested in books, music, games<br>😄 Has a cheerful, energetic and thrill-loving spirit<br>🌠 In the dream of building a better world ;)
+👩🏻‍💻 Love coding and solving puzzles<br>🌟 Interested in book, music and game<br>😄 Has a cheerful, energetic and thrill-loving spirit<br>🌠 In the dream of building a better world ;)
 
 
 ## 🌐 Socials:
